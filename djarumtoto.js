@@ -373,7 +373,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">ingatcuan</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">jp1131</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">gajah36</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">totorawit</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">udara110</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">ganok187</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">paris65</a>
